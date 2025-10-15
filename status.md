@@ -1,0 +1,1 @@
+Idda bihi dar mammas wahyana
